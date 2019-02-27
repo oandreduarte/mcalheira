@@ -4,7 +4,7 @@
 
 
 
-Contact Dr. Dre for more info at oandreduarte@gmail.com
+For more info on this domain, contact me at oandreduarte@gmail.com
 :flushed:
 
 
