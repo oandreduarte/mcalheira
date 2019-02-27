@@ -4,7 +4,7 @@
 
 
 
-[Link](url) and ![Image](src)
+[Contact Dr. Dre for mor info](oandreduarte@gmail.com) :flushed:
 
 
 
