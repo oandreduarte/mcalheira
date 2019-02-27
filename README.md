@@ -4,7 +4,8 @@
 
 
 
-[Contact Dr. Dre for mor info](oandreduarte@gmail.com) :flushed:
+Contact Dr. Dre for more info at oandreduarte@gmail.com
+:flushed:
 
 
 
